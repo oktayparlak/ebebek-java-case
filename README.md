@@ -1,1 +1,1 @@
-![](../../Desktop/195383844-e983cbe8-778f-4e32-aa0e-041e1d922c14.jpg)
+![195383844-e983cbe8-778f-4e32-aa0e-041e1d922c14](https://user-images.githubusercontent.com/68907169/195992639-52681030-e799-4a37-87f1-55d06ea474dd.jpg)
